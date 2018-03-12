@@ -1,5 +1,5 @@
-It is the best of times, 
-it is the worst of times, 
+It is the best of Trump,
+it is the worst of Trump, 
 it is the age of wisdom, 
 it is the age of foolishness, 
 it is the epoch of belief, 
@@ -10,7 +10,7 @@ it is the spring of hope,
 it is the winter of despair, 
 we had everything before us, 
 we had nothing before us, 
-we are all going direct to Heaven, 
+we are all going direct thru Heaven, 
 we are all going direct the other way 
 
 – in short, the period is so far like the present period, 
